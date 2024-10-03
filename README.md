@@ -8,7 +8,7 @@
 - I love to eat chocolate and vanilla based foods
 ---
 | Things I don't like | Things I like |
-| ----------- | ----------- |
+|  :---        |    ---:   |
 | Header      | Seeners🐬🤬 |
 | Paragraph   | papayas🤢 |
 | Paragraph   | People who disrespect others thinking they are funny🤬 |
