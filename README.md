@@ -11,13 +11,16 @@
 
 
 
-| Things I like | Things I [dislike](color: red) |
+| Things I like | Things I dislike |
 |-------------|-----------|
 | Vanilla and chocolate based foods | Seeners🐬🤬 |
+![image](https://github.com/user-attachments/assets/3c7abc8e-38f4-4022-abbe-f0c09c0f7218)
+
 | Playing Roblox and Minecraft 🎮| papayas🤢 |
 | My family and my friends 👨‍👩‍👦| People who disrespect others and thinking they are funny🤬 |
 | Learning Science🧪 | papayas seeds🤢 |
 | Brown sugar | the smell of papayas🤢 |
+| SPACE 🌠| Skibidi toilets🐬🤬 |
 | SPACE 🌠| Skibidi toilets🐬🤬 |
 
 ## Ways to reach/contact me
