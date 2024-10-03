@@ -14,7 +14,7 @@
 | Learning Science🧪| People who disrespect others thinking they are funny🤬|
 |My family and my friends👨‍👩‍👦🙉🙊 | The smell of papayas🤢|
 | Plants and a small portion of animals🐬🌱| People who ruin one's childhood🤬|
-| Collecting gems💎 | Betrayers🐬🤬|
+| Collecting gems💎 | Seeners🐬🤬|
 
 ## Ways to reach/contact me
 Discord: ohmyswirls68
