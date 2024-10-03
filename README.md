@@ -11,7 +11,7 @@
 
 
 
-| Things I like | Things I dislike |
+| Things I like | Things I [dislike](color: red) |
 |-------------|-----------|
 | Vanilla and chocolate based foods | Seeners🐬🤬 |
 | Playing Roblox and Minecraft 🎮| papayas🤢 |
